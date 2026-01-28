@@ -1,4 +1,5 @@
 # andresmino
+
 ANDRÉS FERNANDO MIÑO BERRAZUETA - SOUND ENGINEER / AUDIO PRODUCER / VOICEOVER
 Sound and Acoustics Engineer focused on solving a key problem: making voices/ads and audiovisual audio sound premium, clear, and consistent from the first delivery. End-to-end production and post-production (recording, editing, mixing/mastering) and voiceover direction, with strong technical judgment to prevent rework and meet broadcast and platform requirements. National and international experience, university teaching background, and a proven track record implementing professional audio systems.
 
