@@ -49,7 +49,7 @@ I’m a professional voice talent and audio producer with a strong focus on appl
 Roles in audio technology, sound innovation, or digital media production.
 
 ## 📫 Contact
-- Portfolio: soundcloud
+- Portfolio: https://soundcloud.com/andresminolocutor/
 - LinkedIn: linkedin.com/in/andresfernandomino
 - Email: andresminolocutor@gmail.com
 
